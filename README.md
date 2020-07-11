@@ -2,7 +2,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 A PhD Student
+- 🎓 A PhD Student
 - 😄 A Productivity Enhancer
 - ✏️ A LaTeX Enthusiast
 
