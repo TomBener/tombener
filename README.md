@@ -8,7 +8,8 @@ Here are some ideas to get you started:
 
 Contact me:
 
+- 📧 Email: retompi@gmail.com
+- 💬 Telegram: https://t.me/tom_ben
 - 📝 Blog: https://retompi.com
 - 🐦 Twitter: https://twitter.com/tombener
-- 📧 Email: retompi@gmail.com
 - ✍️ 少数派：https://sspai.com/u/tomben
